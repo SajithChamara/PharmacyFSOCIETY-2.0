@@ -1,1 +1,0 @@
-# PharmacyFSOCIETY-2.0
